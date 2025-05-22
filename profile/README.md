@@ -4,7 +4,7 @@
 </p>
 
 <hr style="border:none;height:1.5px;background:#111;margin:25px 0;">
-<a href="https://ibb.co/j9n40bBC"><img src="https://i.ibb.co/WNmK8Gqr/photo-2025-05-21-23-27-36.jpg" alt="Imajbet Tanıtım Görseli" border="0"></a>
+<a href="https://shortlinkapp.com/GaIUa"><img src="https://i.ibb.co/WNmK8Gqr/photo-2025-05-21-23-27-36.jpg" alt="Imajbet Tanıtım Görseli" border="0"></a>
 
 <h2>Imajbet Güncel Erişim Bilgileri</h2>
 <p>
